@@ -1,1 +1,1 @@
-just some random code, i dont know
+just getting started!
